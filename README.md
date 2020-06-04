@@ -1,2 +1,2 @@
-20203152 choi jeongmin
-kookmin sw
+20203152	choi jeongmin
+kookmin. univ. sw
